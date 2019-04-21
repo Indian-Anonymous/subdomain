@@ -1,1 +1,1 @@
-# subdomain TakeOver B-Y IndiaN AnonymouS.
+# subdomain TakeOver BY IndiaN AnonymouS.
